@@ -8,7 +8,7 @@ Email Me 👉 ✉️ **ds2839925@gmail.com** For Collaboration/Project or Anythi
 - 🌱 **I’m currently learning:** DSA 
 - 👯 **I’m looking to collaborate on:** 
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** clicked on Instagram, LinkedIn, Email 🔗 Below 👇 
+- 📫 **How to reach me:** clicked on Instagram, LinkedIn, Email ## Below 👇 
 - ⚡ **Fun fact:** I Love Coding and Debugging
 
 
